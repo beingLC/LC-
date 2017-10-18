@@ -1,3 +1,3 @@
 # LCwithMe
 ## LC小时候
->![cute]()
+>![](/pics/IMG_6042.JPG)
